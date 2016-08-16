@@ -1,1 +1,0 @@
-# ibore.github.io
